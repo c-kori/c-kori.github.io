@@ -1,1 +1,0 @@
-# c-kori.github.io
